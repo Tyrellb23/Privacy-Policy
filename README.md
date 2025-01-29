@@ -1,3 +1,8 @@
+
+
+
+
+
 Privacy Policy
 Introduction
 Welcome to Public Domain. We value privacy and are committed to protecting the publicly available information collected through our services. This Privacy Policy explains how we collect, use, and share Public Info when accessing and using our services, including our website and mobile applications.
